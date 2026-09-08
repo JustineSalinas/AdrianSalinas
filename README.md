@@ -1,5 +1,5 @@
 # Adrian Justin J. Salinas
-### Full-Stack Developer  ·  AI/ML Specialization  ·  Technical Founder
+### AI Engineer  ·  Technical Founder
 
 ---
 
